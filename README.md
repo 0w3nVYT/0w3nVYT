@@ -9,7 +9,7 @@
 __⚡ Bienvenido a mi espacio en GitHub.
 
 
-** cuidado con karkerkarkurkurkurkursahur..
+** cuidado con karkerkarkurkurkurkursahur.
 
 ** Iza deja el futbol por que igual van a perder en las olimpiadas
 
