@@ -6,7 +6,7 @@
 **💡 Siempre aprendiendo y creando nuevos proyectos.
 
 
-__⚡ Bienvenido a mi espacio en GitHub.
+__⚡ Bienvenido a mi espacio en GitHub..
 
 
 ** cuidado con karkerkarkurkurkurkursahur.
