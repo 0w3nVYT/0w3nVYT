@@ -8,6 +8,7 @@
 
 __⚡ Bienvenido a mi espacio en GitHub.
 
+__ si ven esto es por q estoy vivo. y ya
 
 ** cuidado con karkerkarkurkurkurkurkurkurkurkurkurkursahur.
 
