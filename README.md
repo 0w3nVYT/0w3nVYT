@@ -10,6 +10,9 @@ __⚡ Bienvenido a mi espacio en GitHub.
 
 __ si ven esto es por q estoy vivo. y ya
 
+**entra si quieres saber cual es la forma de ser exitoso
+https://www.youtube.com/watch?v=GBIIQ0kP15E
+
 ** cuidado con karkerkarkurkurkurkurkurkurkurkurkurkursahur.
 
 ** Iza deja el futbol por que igual van a perder en las olimpiadas  
